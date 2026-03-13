@@ -9,6 +9,10 @@
 
 <img src="https://64.media.tumblr.com/34974ad24299e1f259f233c554de70da/4160be3cc2b84620-bd/s540x810/8c484d1fdff0e9ce0db8d1f5666cf2b1f659c4fb.gifv"></img>
 
+*I am almost always afk, even when the skin doesn't say it. Whisper, if you want to say something. C+H freely.*
+
+<img src="https://64.media.tumblr.com/34974ad24299e1f259f233c554de70da/4160be3cc2b84620-bd/s540x810/8c484d1fdff0e9ce0db8d1f5666cf2b1f659c4fb.gifv"></img>
+
 
 <img src="https://media0.giphy.com/media/v1.Y2lkPTc5MGI3NjExdGIxMXIzdmR3cXJsZWZnazRwajE4djh4d3hsemFyZWJtcXJxOG45bCZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9dHM/uw84ObmUD3Xfq/giphy.gif" width=200 ></img> 
 <img src="https://64.media.tumblr.com/bcf41583a1187f191f6eed0d9e8069f1/8680f2784c87222c-a8/s100x200/237ec301a4361393c34d3aa23a3c7d4bbd9be941.gifv" height=50></img>
