@@ -1,5 +1,12 @@
 ![](https://komarev.com/ghpvc/?username=Asterius-Asterion&label=hits&color=064242&style=plastic)
 
+[atabook](https://asterion.atabook.org/)
+
+**Preferred names-**
+- *Asterion*
+- *Cass*
+- *Sam/Sammy (If I tell you)*
+
 <img src="https://64.media.tumblr.com/34974ad24299e1f259f233c554de70da/4160be3cc2b84620-bd/s540x810/8c484d1fdff0e9ce0db8d1f5666cf2b1f659c4fb.gifv"></img>
 
 
@@ -38,6 +45,7 @@
 <img src="https://64.media.tumblr.com/2e90b4188f1225df6e9b4d0e7cb84786/b67bd7cf60d21321-fb/s250x400/a9365b26a176f5aad881a1a8770493fd5458154c.gifv" height=50></img>
 <img src="https://64.media.tumblr.com/29381ce0c40d1b86f213892b8a0df93b/4494d953484c5b8c-d0/s250x400/7125a963130185cd3595b15e968b045f6e81d17a.gifv" height=50></img>
 <img src="https://64.media.tumblr.com/572381c4ca10981c6e4a5f14a0284b53/f2cc2a65c0bafe8b-3f/s100x200/090b3c3fe8711475d1ea6dec4e989f345a76ab77.pnj" height=50></img>
+<img src="https://64.media.tumblr.com/1407d7318589159cd230153e83b88e05/a03899db851734b4-7a/s100x200/8b76b4bbc0b1c283f6399ea7554e0bef1822b70a.gifv" height=50></img>
 
 
 <img src="https://64.media.tumblr.com/7d0df3114828332aea1a880eeb03e017/82998eb2a7cc013f-bf/s400x600/a22432463a8118f3bb8cabead76a4fbb1a39c727.gifv" height=20></img>
@@ -70,6 +78,7 @@
 <img src="https://64.media.tumblr.com/72ee423eec85ffad873e4af4de03e9b2/81e0e510e3be5c75-1f/s250x400/fd4fd8f6576d5af2f952ca9a05bda340359b9a20.gifv" height=20></img>
 <img src="https://64.media.tumblr.com/0e3eada1acd8984ea29cfb42cc1fbd24/adc1b2548baa40e2-7f/s250x400/3cd7c110ea0c6b4ee6298bdc073ab62612047caf.gifv" height=20></img>
 <img src="https://64.media.tumblr.com/9aad6fb948d1cfa36f2418fda26091f0/68b0f68b50494d64-50/s250x400/a04c159b7894fbf59134cc968a41802993391068.gifv" height=20></img>
+<img src="https://64.media.tumblr.com/8345d1607c96d10decc1b99c4f273c44/9bca438855e99151-79/s500x750/d82481df63abbba729b328796a167b3cbd172e00.gifv" height=20></img>
 
 
 <img src="https://64.media.tumblr.com/8584a3f4ec8df7ea34fd72a9956d7760/90a95c1aea13557b-89/s2048x3072/f56f9d034d72457cfb672f3affde39512bddcf7a.pnj" height=50></img>
