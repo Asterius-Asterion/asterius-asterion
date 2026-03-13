@@ -1,5 +1,8 @@
 ![](https://komarev.com/ghpvc/?username=Asterius-Asterion&label=hits&color=064242&style=plastic)
+
 <img src="https://64.media.tumblr.com/34974ad24299e1f259f233c554de70da/4160be3cc2b84620-bd/s540x810/8c484d1fdff0e9ce0db8d1f5666cf2b1f659c4fb.gifv"></img>
+
+
 <img src="https://media0.giphy.com/media/v1.Y2lkPTc5MGI3NjExdGIxMXIzdmR3cXJsZWZnazRwajE4djh4d3hsemFyZWJtcXJxOG45bCZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9dHM/uw84ObmUD3Xfq/giphy.gif" width=200 ></img> 
 <img src="https://64.media.tumblr.com/bcf41583a1187f191f6eed0d9e8069f1/8680f2784c87222c-a8/s100x200/237ec301a4361393c34d3aa23a3c7d4bbd9be941.gifv" height=50></img>
 <img src="https://64.media.tumblr.com/d3ebd4b497dd9bc98ca242e548546fee/745b84953116e0f5-44/s75x75_c1/253d3cd9d500bf3dd96fa7d6eb397a1518363a67.gifv" height=50></img>
