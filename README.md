@@ -1,4 +1,4 @@
-![](https://komarev.com/ghpvc/?username=Asterius-Asterion&label=KillCount-&color=064242&style=plastic)
+![](https://komarev.com/ghpvc/?username=Asterius-Asterion&label=KillCount:&color=064242&style=plastic)
 
 [atabook](https://asterion.atabook.org/)
 
