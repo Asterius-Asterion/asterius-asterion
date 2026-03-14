@@ -9,7 +9,7 @@
 
 <img src="https://64.media.tumblr.com/34974ad24299e1f259f233c554de70da/4160be3cc2b84620-bd/s540x810/8c484d1fdff0e9ce0db8d1f5666cf2b1f659c4fb.gifv"></img>
 
-*I am almost always afk, even when the skin doesn't say it. Whisper, if you want to say something. C+H freely.*
+*I am almost always afk in the comic area, even when the skin doesn't say it. Whisper, if you want to say something. C+H freely.*
 
 <img src="https://64.media.tumblr.com/34974ad24299e1f259f233c554de70da/4160be3cc2b84620-bd/s540x810/8c484d1fdff0e9ce0db8d1f5666cf2b1f659c4fb.gifv"></img>
 
